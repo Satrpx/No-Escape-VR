@@ -12,3 +12,9 @@ Also, there is an immersive first person mode! you can even see the steering whe
 
 Have fun!
 
+P.S. If you doesn't have a VR headset, here's what it looks like. ^_^
+
+https://github.com/user-attachments/assets/7186dfd3-7cee-4af6-8749-6d6efba5e394
+
+https://github.com/user-attachments/assets/e031d2ff-ff84-405b-9501-768db193869b
+
